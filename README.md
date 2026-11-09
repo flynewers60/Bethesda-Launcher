@@ -215,4 +215,4 @@ Bethesda Launcher is available as a **full free version**, providing all feature
 Don't miss out on the ultimate gaming experience! **Download Bethesda Launcher today and start your gaming adventure!**
 
 ---
-**Last updated:** 2026-11-08 20:52:46 UTC
+**Last updated:** 2026-11-09 00:18:45 UTC
